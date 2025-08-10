@@ -1,7 +1,7 @@
 ## Hi👋,I'm Likhitha R V
 
 # 💫 About Me:
-📈i'm currently learning web development <br>📩reach out to me - likhitharvlikhitha@gmail.com
+📈i'm currently learning web development <br>📩reach out to me - likhitharvlikhitha@gmail.com <br>[LinkedIn](https://www.linkedin.com/in/likhitharv) | [X](https://x.com/likhitharv) | [Instagram](https://www.instagram.com/lrv.sketches)
 
 
 ## 🌐 Socials:
